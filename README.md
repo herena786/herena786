@@ -1,6 +1,6 @@
 - ➵ Hi, I’m Herena
-- ➵ I’m interested in winning your heart ♡
-- ➵ I’m currently learning how I'm supposed to use GitHub
+- ➵ I’m interested in world domination ♡
+- ➵ I’m currently learning how to use GitHub
 - ➵ I’m looking to collaborate on literally nothing, I suck
 - ➵ How to reach me: n/a. Don't stalk me
 
